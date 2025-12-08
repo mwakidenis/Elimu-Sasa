@@ -48,6 +48,6 @@ I appreciate your support in making education more accessible and effective for 
 
 ### 😁Author **Mwaki Denis** ❤🙌
 
-##Feel free to support  [![Buy Me a Coffee](https://img.shields.io/badge/Buy%20Me%20a%20Coffee-%F0%9F%8D%B5-yellow?style=for-the-badge)](https://wa.me/254798750585)
+**Feel free to support**  [![Buy Me a Coffee](https://img.shields.io/badge/Buy%20Me%20a%20Coffee-%F0%9F%8D%B5-yellow?style=for-the-badge)](https://wa.me/254798750585)
 
 
